@@ -1,3 +1,3 @@
 # Unterschriftszwang
 
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Bestätigung vom VG Potsdam](/unterschrift/unterschriftzwang-001.jpg)
